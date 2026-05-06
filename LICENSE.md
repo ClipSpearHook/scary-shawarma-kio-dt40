@@ -1,4 +1,4 @@
-
+premium Script for scary shawarma kiosk offers the most advanced scary shawarma kiosk Script, with instant win and auto-sell. Perfect for dominating
 
 
 
